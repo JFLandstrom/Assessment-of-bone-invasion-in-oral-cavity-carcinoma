@@ -24,7 +24,7 @@ Since head and neck cancer is not one of the largest cancer groups in Sweden it 
 
 ## What next?
 
-The first thing is the get Ethical approval for a pilot study at Örebro university hospital. If sucessful the next step is to set up an international multi centre study
+The first thing is to the get Ethical approval for a pilot study at Örebro university hospital. If sucessful the next step is to set up an international multi centre study
 
 
 ## Acknowledgments
